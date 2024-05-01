@@ -1,2 +1,7 @@
 # IFTS9Git
-Oriana
+
+Beatriz-Villamayor
+
+Yessica Squillache
+
+OrianaSalazar
