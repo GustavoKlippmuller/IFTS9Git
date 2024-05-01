@@ -1,2 +1,13 @@
 # IFTS9Git
-# Rodrigo Carmé
+
+Rodrigo Carmé
+
+JESUS ALINO NEYRA SOTELO
+
+Federico Galvan
+
+Beatriz-Villamayor
+
+Yessica Squillache
+
+OrianaSalazar
